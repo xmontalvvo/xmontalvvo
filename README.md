@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently work on my own projects<br>I'm looking at collaborating with other developers<br>I'm currently learning more technologies and efficiency in writing code
+✅ I'm currently work on my own projects<br>✅ I'm looking at collaborating with other developers<br>✅ I'm currently learning more technologies and efficiency in writing code
 
 
 ## 🌐 Socials:
